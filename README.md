@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ashutoshtiwari200128@gmail.com**
 
-- 📄 Know about my experiences [[click here!](https://drive.google.com/file/d/1jBiik_jiGyvMie4AxDdykF-PxOVh9s69/view?usp=drive_link)]
+- 📄 Know about my experiences [[click here!](https://drive.google.com/file/d/1o-dak0RMNxZiCWOppjS9Q7XSwv-K6mgc/view?usp=sharing)]
 
 - ⚡ Fun fact **I play chess and cricket!**
 
